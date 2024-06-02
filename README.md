@@ -3,7 +3,7 @@
 
 ## 👨‍👨‍👧‍👧 Team member
 
-![Untitled](Lovable%20baby%20owls%20bd1e1610e8f644c2b37a70c05e6429e5/Untitled.png)
+![Untitled]([Lovable%20baby%20owls%20bd1e1610e8f644c2b37a70c05e6429e5/Untitled.png](https://github.com/Uk-jake/ModifyReadme/blob/main/TeamIntroduction/Lovable%20baby%20owls%20bd1e1610e8f644c2b37a70c05e6429e5/Untitled%201.png?raw=true))
 
 <br>
 
